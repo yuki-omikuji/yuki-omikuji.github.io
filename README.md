@@ -1,0 +1,1 @@
+# yuki-omikuji.github.io
